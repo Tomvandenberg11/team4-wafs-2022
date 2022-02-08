@@ -1,2 +1,2 @@
-# team4-wafs-2022
+# Teampagina van team 4 visitekaartjes
 Teampagina visitekaartjes team 4
